@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pinamelonade
+- 👋 Hi, I’m @nuaq2005
 - 👀 I’m interested in urban planning
 - 🌱 I’m currently learning how to crochet
 - 💞️ I’m looking to collaborate on small scale projects.
