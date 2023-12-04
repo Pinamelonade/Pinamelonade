@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pinamelonade
 - 👀 I’m interested in urban planning
 - 🌱 I’m currently learning how to crochet
-- 💞️ I’m looking to collaborate on (nothing at the moment)
+- 💞️ I’m looking to collaborate on small scale projects.
 - 📫 How to reach me:aquilanuzhat@gmail.com/ www.linkedin.com/in/aquila-nuzhat-5bb581296
 
 <!---
