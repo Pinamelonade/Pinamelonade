@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nuaq2005
 - 👀 I’m interested in front end web development
-- 🌱 I’m currently learning how to crochet
-- 💞️ I’m looking to collaborate on small scale projects.
+- 🌱 I’m currently learning how to crochegit
+- 💞️ I’m looking to collaborate on small scale projects and make contribtions!
 - 📫 How to reach me:aquilanuzhat@gmail.com/ www.linkedin.com/in/aquila-nuzhat-5bb581296
 
 <!---
